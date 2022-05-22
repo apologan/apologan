@@ -1,0 +1,5 @@
+- 👋 yo, i’m apologan
+- 👀 i'm interested in minecraft
+- 🌱 i'm currently learning music production
+- 💞️ i’m looking to collaborate on nothing!
+- 📫 you can't reach me :)
